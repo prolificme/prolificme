@@ -1,5 +1,7 @@
 # 2021最新整合全系列(每个系列是多个游戏，基本都是全DLC整合)
 
+集合链接：https://mianbaoduo.com/o/bread/YpWZl5pr
+
 鬼泣系列
 刺客信条系列
 逃生系列
