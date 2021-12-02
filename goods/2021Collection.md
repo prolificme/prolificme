@@ -1,5 +1,7 @@
 # 2021最新整合全合集(每个合集是多个游戏，基本都是全DLC整合)
 
+购买正版前的体验必备。
+
 集合链接：https://mianbaoduo.com/o/bread/YpWZl5pr
 
 千款PC单机游戏大合集（包过MIRROR的补丁和全CG）
