@@ -2,6 +2,8 @@
 
 去兔子补丁：[https://mianbaoduo.com/o/bread/mbd-YpWZkphu](https://mianbaoduo.com/o/bread/mbd-YpWZkphu)
 
+只测试过WINDOWS可用
+
 游戏嘛，就是要玩得开心(～￣▽￣)～
 
 Mirror全CG（部分CG需要配合DLC食用）：[https://mianbaoduo.com/o/bread/YpWZk5ts](https://mianbaoduo.com/o/bread/YpWZk5ts)

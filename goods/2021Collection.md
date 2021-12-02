@@ -2,6 +2,12 @@
 
 集合链接：https://mianbaoduo.com/o/bread/YpWZl5pr
 
+千款PC单机游戏大合集（包过MIRROR的补丁和全CG）
+
+NEKOPARA艹猫系列6部本体加补丁合集、赛博朋克2077、刺客信条系列游戏、万华镜系列、莱莎的炼金工坊等游戏下载。。。。Steam购买游戏前体验游戏大推荐。。。
+
+等有时间再补全下面....
+
 万华镜合集全存档全CG
 - 《美少女万华镜 -被诅咒的传说少女-》
 - 《美少女万华镜 -勿忘草与永远的少女-》
@@ -15,8 +21,8 @@
 刺客信条合集
 
 逃生合集
-- 逃生：完全版
-- 逃生2
+- 《逃生：完全版》
+- 《逃生2》
 
 
 消逝的光芒合集
@@ -24,15 +30,15 @@
 Light)》
 
 NEKOPARA合集
-- NEKOPARA Vol.0
-- NEKOPARA Vol.1
-- NEKOPARA Vol.2
-- NEKOPARA Vol.3
-- NEKOPARA Vol.4
-- NEKOPARA EXTRA
-- 没时间可以先玩EXTRA再玩4，其他的随缘玩即可
+- 《NEKOPARA Vol.0》
+- 《NEKOPARA Vol.1》
+- 《NEKOPARA Vol.2》
+- 《NEKOPARA Vol.3》
+- 《NEKOPARA Vol.4》
+- 《NEKOPARA EXTRA》
+- 没时间可以先玩EXTRA再玩4，其他的随缘玩即可，前面几部都是720P的，有些模糊
 
-赛博朋克2077
+《赛博朋克2077》
 
 使命召唤合集1-14(包括重制版4和6)
 
