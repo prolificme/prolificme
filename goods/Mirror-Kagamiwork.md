@@ -6,9 +6,7 @@
 
 Mirror全CG（部分CG需要配合DLC食用）：[https://mianbaoduo.com/o/bread/YpWZk5ts](https://mianbaoduo.com/o/bread/YpWZk5ts)
 
-补丁和全CG一起购买：[https://mianbaoduo.com/o/bread/mbd-YpWZl5pp](https://mianbaoduo.com/o/bread/mbd-YpWZl5pp)
-
-千款PC游戏大合集：[【永久回看】2021最全千款新版单机游戏大合集 安装OK](https://github.com/prolificme/prolificme/blob/main/goods/2021Collection.md)
+千款PC游戏大合集（包过MIRROR的补丁和全CG）：[【永久回看】2021最全千款新版单机游戏大合集 安装OK](https://github.com/prolificme/prolificme/blob/main/goods/2021Collection.md)
 
 NEKOPARA艹猫系列6部本体加补丁合集、赛博朋克2077、刺客信条系列游戏、万华镜系列、莱莎的炼金工坊等游戏下载。。。。Steam购买游戏前体验游戏大推荐。。。
 
