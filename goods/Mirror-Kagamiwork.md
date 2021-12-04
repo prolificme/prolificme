@@ -1,5 +1,7 @@
 #### 游戏嘛，就是要快乐一些
 
+都是第三方工具，不用担心我会收集信息。
+
 需自备百度网盘。
 
 去兔子补丁：[https://mianbaoduo.com/o/bread/mbd-YpWZkphu](https://mianbaoduo.com/o/bread/mbd-YpWZkphu)
