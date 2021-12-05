@@ -2,7 +2,7 @@
 
 购买正版前的体验必备。
 
-集合链接：https://mianbaoduo.com/o/bread/YpWZl5pr
+集合链接：https://mianbaoduo.com/o/bread/YpWal5tw
 
 千款PC单机游戏大合集（包过MIRROR的补丁和全CG）
 
