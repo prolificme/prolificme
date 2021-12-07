@@ -4,26 +4,22 @@
 
 都是第三方工具，不用担心我会收集信息。
 
-需自备百度网盘。
+需自备百度网盘, 该补丁不会引起Steam红黄信，多个账号测试过，作为玩家，这点可以确认。
+
+仅限于 **W I N D O W S** 可用，我只用Windows打游戏，Mac 没装过游戏。
 
 去兔子补丁：[https://mianbaoduo.com/o/bread/mbd-YpWZkphu](https://mianbaoduo.com/o/bread/mbd-YpWZkphu)
 
 ![Mirror](https://cdn.2zimu.com/mbd_1638270903451_screenshot_1638270903384.jpg?imageView2/2/w/730/)
 
 
-只测试过WINDOWS可用
-
 游戏嘛，就是要玩得开心(～￣▽￣)～
-
-
-
-
 
 > 其它（无关）：
 
 千款PC游戏大合集：[【永久回看】2021最全千款新版单机游戏大合集 安装OK](https://github.com/prolificme/prolificme/blob/main/goods/2021Collection.md)
 
-NEKOPARA艹猫系列6部本体加补丁合集、赛博朋克2077、刺客信条系列游戏、万华镜系列、莱莎的炼金工坊等游戏下载。。。。Steam购买游戏前体验游戏大推荐。。。
+NEKOPARA艹猫系列6部本体加补丁合集、赛博朋克2077、刺客信条系列游戏、万华镜系列、莱莎的炼金工坊等游戏下载。。。。
 
 **万华镜系列（Steam只有五）**
 
