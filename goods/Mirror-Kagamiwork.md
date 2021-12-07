@@ -25,7 +25,7 @@ NEKOPARA艹猫系列6部本体加补丁合集、赛博朋克2077、刺客信条�
 
 ![万华镜](https://cdn.2zimu.com/mbd_file_NTcwODc0XzIwNjU0Ml8xNjM4NjY4MTI0OTYzXzE2Mzg2NjgxMjQ5NjI.png)
 
-**Steam版本Nekopara补丁（0和Extra是没有补丁的！）**
+**Steam版本Nekopara补丁（0和Extra是没有补丁的！）,也有本体下载**
 
 ![Nekopara](https://cdn.2zimu.com/mbd_file_NTcwODc0XzIwNjU0Ml8xNjM4NjY4Mjc0ODY5XzE2Mzg2NjgyNzQ4Njk.png)
 
