@@ -8,7 +8,7 @@
 
 仅限于 **W I N D O W S** 可用，我只用Windows打游戏，Mac 没装过游戏。
 
-去兔子补丁：[https://mianbaoduo.com/o/bread/mbd-YpWZkphu](https://mianbaoduo.com/o/bread/mbd-YpWZkphu)
+去兔子补丁：[https://mianbaoduo.com/o/bread/YpaVlJhs](https://mianbaoduo.com/o/bread/YpaVlJhs)
 
 ![Mirror](https://cdn.2zimu.com/mbd_1638270903451_screenshot_1638270903384.jpg?imageView2/2/w/730/)
 
